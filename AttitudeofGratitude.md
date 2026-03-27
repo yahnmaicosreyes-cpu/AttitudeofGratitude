@@ -22,3 +22,8 @@ Thankful I got a job offer this week
 
 ## Day 4 March 26th
 
+Today I am grateful I finished all my work for the week 
+Thankful for prayer and meditation
+Thankful I am satisfied with my website to present on Saturday
+
+## Day 5 March 27th
