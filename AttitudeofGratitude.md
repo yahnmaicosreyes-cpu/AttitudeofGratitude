@@ -27,3 +27,7 @@ Thankful for prayer and meditation
 Thankful I am satisfied with my website to present on Saturday
 
 ## Day 5 March 27th
+
+Today I am grateful for prayer and meditation
+Thankful for graduating a financial course
+Thankful for feeling more comfortable talking to new people
