@@ -31,3 +31,9 @@ Thankful I am satisfied with my website to present on Saturday
 Today I am grateful for prayer and meditation
 Thankful for graduating a financial course
 Thankful for feeling more comfortable talking to new people
+
+## Day 6 March 28th
+
+Today I am grateful for prayer and meditation
+Thankful that I meditated for 30 days this month
+Thankful for the people in my life who live rent free in my head because they teach me how to love
