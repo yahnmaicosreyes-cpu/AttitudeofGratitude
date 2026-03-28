@@ -3,37 +3,37 @@
 
 ## Day 1 Mar 23rd
 
-Today I am grateful for the air that I breathe 
-Thankful for all that my body does for me
-Thankful for Hot Chocolate
+1. Today I am grateful for the air that I breathe 
+2. Thankful for all that my body does for me
+3. Thankful for Hot Chocolate
 
 ## Day 2 Mar 24th
 
-Today I am grateful for my peers at pursuit who helped me understand GitHub (yesterday) 
-Thankful for waking up today 
-Thankful for Vanilla Ensure Shake
+1. Today I am grateful for my peers at pursuit who helped me understand GitHub (yesterday) 
+2. Thankful for waking up today 
+3. Thankful for Vanilla Ensure Shake
 
 
 ## Day 3 March 25th 
 
-Today I am grateful for an awesome collaboration with my hackathon team 
-Thankful I am able to take the laptop home to work at home 
-Thankful I got a job offer this week
+1. Today I am grateful for an awesome collaboration with my hackathon team 
+2. Thankful I am able to take the laptop home to work at home 
+3. Thankful I got a job offer this week
 
 ## Day 4 March 26th
 
-Today I am grateful I finished all my work for the week 
-Thankful for prayer and meditation
-Thankful I am satisfied with my website to present on Saturday
+1. Today I am grateful I finished all my work for the week 
+2. Thankful for prayer and meditation
+3. Thankful I am satisfied with my website to present on Saturday
 
 ## Day 5 March 27th
 
-Today I am grateful for prayer and meditation
-Thankful for graduating a financial course
-Thankful for feeling more comfortable talking to new people
+1. Today I am grateful for prayer and meditation
+2. Thankful for graduating a financial course
+3. Thankful for feeling more comfortable talking to new people
 
 ## Day 6 March 28th
 
-Today I am grateful for prayer and meditation
-Thankful that I meditated for 30 days this month
-Thankful for the people in my life who live rent free in my head because they teach me how to love
+1. Today I am grateful for prayer and meditation
+2. Thankful that I meditated for 30 days this month
+3. Thankful for the people in my life who live rent free in my head because they teach me how to love
