@@ -42,3 +42,9 @@
 1. Today I am grateful I was able to finish "what a good problem?" analysis
 2. Thankful for the ability to be able to serve at church
 3. Thankful for pursuit's flexibility -- letting me come in late on Sundays
+
+## Day 8 March 30th
+1. Grateful
+2.
+3.
+
