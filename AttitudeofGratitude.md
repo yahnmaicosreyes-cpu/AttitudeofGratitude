@@ -44,7 +44,12 @@
 3. Thankful for pursuit's flexibility -- letting me come in late on Sundays
 
 ## Day 8 March 30th
-1. Grateful for
-2.
-3.
+1. Grateful for prayer and meditation
+2. Thankful for poptarts
+3. Thankful being able to stay in class late
+
+## Day 9 March 31st
+1. Grateful for prayer 
+2. Grateful for the glasses I bought today
+3. Grateful for health insurance
 
