@@ -89,3 +89,8 @@
 1. Grateful I made to class on time today
 2. Grateful I was able to Finish Saturday's assignments today
 3. Grateful my church records their services on Youtube
+
+## Day 17th, April 8th, Wednesday
+1. Today I am grateful for making to Pursuit HQ early 
+2. Thankful for the cinnamon raisen bagel I had a few minutes from typing this gratitude list
+3. Thankful I was able to get to MVP fairly quickly 
