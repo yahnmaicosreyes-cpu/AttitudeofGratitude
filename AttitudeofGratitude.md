@@ -125,7 +125,12 @@
 2. Thankful I received a call from my brother
 3. Thankful time spend in meditation
 
-## Day 24th April 15th , Wednesday
+## Day 24th April 15th, Wednesday
 1. Thankful for prayer and meditation
 2. Thankful for Daniel Buying dinner
 3. Thankful for Pursuit staff and students
+
+## Day 25th April 16th, Thursday
+1. Today I am grateful I got some well needed rest
+2. Thankful we get access to Pursuit HQ outside of class hours 
+3. Thankful for the Professional picture Pursuit provided us
