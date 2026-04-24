@@ -176,3 +176,8 @@
 3. Thankful for my morning routine which helps me prepare myself for the world 
 
 ## Day 34 April 25th, Saturday
+1. Today I am grateful for meeting up with a friend for Bible Study
+2. Thankful for the privilege of going into pursuit HQ to catch up on work
+3. Thankful for the access to electronic devices Pursuit let's us use 
+
+## Day 35 April 26th, Sunday
