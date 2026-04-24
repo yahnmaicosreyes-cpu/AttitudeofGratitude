@@ -134,3 +134,45 @@
 1. Today I am grateful I got some well needed rest
 2. Thankful we get access to Pursuit HQ outside of class hours 
 3. Thankful for the Professional picture Pursuit provided us
+
+## Day 26th April 17th, Friday
+1. Thankful a meeting got canceled this morning and I was able to do laundry
+2. Thankful for seeing a group of friends
+3. Thankful I am able to be of service in a group meeting I am a member of
+
+## Day 27th April 18th, Saturday
+1. Thankful for the L2 and L3 fellows who share their knowledge with me 
+2. Thankful GOD gifted me with the gift of giving what was freely given to me
+3. Thankful for another day to be grateful
+
+## Day 28th April 19th, Sunday
+1. Thankful for one more day
+2. Thankful I have a timer when the light in room goes off in the morning
+3. Thankful for the shirt I got from my Church
+
+## Day 29th April 20th, Monday
+1. Thankful for what God has given me
+2. Thankful for what God has taken away
+3. Thankful for what God has protected me from 
+
+## Day 30th April 21st, Tuesday
+1. Thankful for prayer
+2. Thankful that I spent time in silent meditation
+3. Thankful I was able to do my budget
+
+## Day 31 April 22nd, Wednesday
+1. Thankful for sticking to what's important to me and not letting myself get distracted by noise
+2. Thankful for the people in my life who make me feel less alone at times
+3. Thankful for being able to serve at church from a place of love
+
+## Day 32 April 23rd, Thursday
+1. Today I am grateful for waking up 
+2. Thankful for I was able to make some strides on my assignments
+3. Thankful my mother left me some food in the refridgerator 
+
+## Day 33 April 24th, Friday
+1. Today I am grateful for the Mens Ministry I am a member of at the Church I attend
+2. Thankful for game night with the boys today
+3. Thankful for my morning routine which helps me prepare myself for the world 
+
+## Day 34 April 25th, Saturday
